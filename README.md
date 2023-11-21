@@ -1,0 +1,2 @@
+# Nurul-Nabila-
+INDIVIDUAL ASSIGNMENT 1 
